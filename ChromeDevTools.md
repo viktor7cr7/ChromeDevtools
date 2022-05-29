@@ -1,0 +1,1 @@
+[РешениеChromeDevTools](https://www.youtube.com/watch?v=UGgy4j7RDdw)
